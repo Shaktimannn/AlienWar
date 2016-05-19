@@ -1,2 +1,2 @@
-# AlienWar
-Porny's
+# AlienWaR
+ALIENWAR
